@@ -4,10 +4,10 @@ layout: default
 
 Stap binnen in de wereld van avontuur met de Dungeons & Drachtsters! 
 
-Ben jij een doorgewinterde avonturier of juist een nieuwsgierige beginner in de wereld van Dungeons & Dragons? Bij de Dungeons & Drachtsters draait alles om samen spelen, verhalen vertellen en epische avonturen beleven, ongeacht je leeftijd of ervaring.
+Ben jij een doorgewinterde avonturier of juist een nieuwsgierige beginner in de wereld van Dungeons & Dragons en TTRPG's? Bij de Dungeons & Drachtsters draait alles om samen spelen, verhalen vertellen en epische avonturen beleven, ongeacht je leeftijd of ervaring.
 
 ## 🎲 Speel Dungeons & Dragons in Drachten
-*   **Inclusieve community:** Jong en oud komen samen aan tafel om fantastische werelden te verkennen. We hebben groepen voor volwassen spelers, kinderen en groepen waarbij die twee worden gemengd.
+*   **Inclusieve community:** Jong en oud komen samen aan tafel om fantastische D&D-werelden te verkennen. We hebben groepen voor volwassen spelers, kinderen en groepen waarbij die twee worden gemengd.
 *   **Creatieve vrijheid:** Word een onverschrokken krijger, slimme tovenaar of eigenzinnige bard – jouw personage, jouw verhaal!
 *   **Toegankelijk voor iedereen:** Of je nu al jaren speelt of net je eerste dobbelstenen hebt gekocht, iedereen is welkom.
 *   **Gezelligheid staat voorop:** Ontmoet nieuwe vrienden, lach om gekke situaties en geniet van de magie van samenspel.
@@ -15,7 +15,7 @@ Ben jij een doorgewinterde avonturier of juist een nieuwsgierige beginner in de 
 ## 🐉 Wat kun je verwachten?
 Onze community organiseert iedere twee weken speelsessies, waar je als speler of Dungeon Master aan kunt meedoen. Van spannende campagnes tot hilarische one-shots – er is altijd iets te beleven!
 
-*   We spelen in de **Bibliotheek Drachten**, waar meerdere ruimtes voor ons beschikbaar zijn gesteld.
+*   We spelen in de **Bibliotheek Drachten** ((Museumplein 1, 9203 DD Drachten), waar meerdere ruimtes voor ons beschikbaar zijn gesteld.
 *   Speelsessies zijn **iedere oneven zondag**, van **12:30 tot 17:00**. Deelname is gratis.
 
 ## 📄 Meespelen? Meld je hieronder aan!
