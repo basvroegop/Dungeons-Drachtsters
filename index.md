@@ -15,7 +15,7 @@ Ben jij een doorgewinterde avonturier of juist een nieuwsgierige beginner in de 
 ## 🐉 Wat kun je verwachten?
 Onze community organiseert iedere twee weken speelsessies, waar je als speler of Dungeon Master aan kunt meedoen. Van spannende campagnes tot hilarische one-shots – er is altijd iets te beleven!
 
-*   We spelen in de **Bibliotheek Drachten** ((Museumplein 1, 9203 DD Drachten), waar meerdere ruimtes voor ons beschikbaar zijn gesteld.
+*   We spelen in de **Bibliotheek Drachten** (Museumplein 1, 9203 DD Drachten), waar meerdere ruimtes voor ons beschikbaar zijn gesteld.
 *   Speelsessies zijn **iedere oneven zondag**, van **12:30 tot 17:00**. Deelname is gratis.
 
 ## 📄 Meespelen? Meld je hieronder aan!
