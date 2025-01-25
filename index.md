@@ -2,7 +2,7 @@
 layout: default
 ---
 
-Stap binnen in de wereld van avontuur met de Dungeons & Drachtsters! 
+Stap binnen in de wereld van avontuur met de Dungeons & Drachtsters! Een community met leden uit Smallingerland en omstreken.
 
 Ben jij een doorgewinterde avonturier of juist een nieuwsgierige beginner in de wereld van Dungeons & Dragons en TTRPG's? Bij de Dungeons & Drachtsters draait alles om samen spelen, verhalen vertellen en epische avonturen beleven, ongeacht je leeftijd of ervaring.
 
